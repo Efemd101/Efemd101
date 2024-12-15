@@ -3,7 +3,7 @@
 ![<p></p>](https://i.hizliresim.com/ll4uif0.png?width=960&height=219)
 
 <p align="center">
-    Skills
+    
 </p> 
 
 <p align="center">
